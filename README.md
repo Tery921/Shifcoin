@@ -1,0 +1,2 @@
+# Shifcoin
+New crypto
